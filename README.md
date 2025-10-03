@@ -1,1 +1,2 @@
-# temple-of-dragon-king
+# Temple Of Dragon King
+Le grand-père de Lin Qinghan (le père de son père) est confronté à un danger imminent. Sa famille a ignoré la stabilité du conglomérat Lin et a usé de divers moyens ignobles pour hériter de ses biens. La présidente Qinghan a été victime d'un coup monté. Cependant, son mari, Zhang Xuan, surnommé « Satan » parmi les Seigneurs du Temple du Roi Dragon, résout tous les problèmes un par un.
